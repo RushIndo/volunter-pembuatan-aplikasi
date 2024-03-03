@@ -7,4 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-* Fajri Rayrahman Harlan, [Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/fajri-rayrahman-harlan-15652a21b/)https://www.linkedin.com/in/fajri-rayrahman-harlan-15652a21b/).
+* Fajri Rayrahman Harlan, [Linkedin](https://www.linkedin.com/in/fajri-rayrahman-harlan-15652a21b/).
